@@ -16,6 +16,8 @@ FNAF
 
 GI
 
+SMG4 (Wip)
+
 If you want to inc just know im a little shy so you might have to int first! 
 I allow C + H, you can cover me a bit but make sure im still visible!
 
