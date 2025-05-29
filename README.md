@@ -2,13 +2,13 @@
 
 
 
-‎‧₊˚✧Hello!✧˚₊‧
+‎‧₊˚✧ʜᴇʟʟᴏ!✧˚₊‧
 
-This is my silly little pony town github, it has all of my ponies saved to it (or should idk why it wouldnt XP)
+ᴛʜɪꜱ ɪꜱ ᴍʏ ꜱɪʟʟʏ ʟɪᴛᴛʟᴇ ᴘᴏɴʏ ᴛᴏᴡɴ ɢɪᴛʜᴜʙ, ɪᴛ ʜᴀꜱ ᴀʟʟ ᴏꜰ ᴍʏ ᴘᴏɴɪᴇꜱ ꜱᴀᴠᴇᴅ ᴛᴏ ɪᴛ (ᴏʀ ꜱʜᴏᴜʟᴅ ɪᴅᴋ ᴡʜʏ ɪᴛ ᴡᴏᴜʟᴅɴᴛ xᴘ)
 
 Im normally in a OP cosplay so look out for that. (and it will either have my discord user or my github linked to it!)
 
-Fandoms i have cosplays for-
+ꜰᴀɴᴅᴏᴍꜱ ɪ ʜᴀᴠᴇ ᴄᴏꜱᴘʟᴀʏꜱ ꜰᴏʀ-
 
 ᴏɴᴇ ᴘɪᴇᴄᴇ
 
@@ -22,19 +22,18 @@ Fandoms i have cosplays for-
 
 ꜱᴍɢ4 (ᴡɪᴘ)
 
-If you want to inc just know im a little shy so you might have to int first! 
-I allow C + H, you can cover me a bit but make sure im still visible!
+ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ɪɴᴄ ᴊᴜꜱᴛ ᴋɴᴏᴡ ɪᴍ ᴀ ʟɪᴛᴛʟᴇ ꜱʜʏ ꜱᴏ ʏᴏᴜ ᴍɪɢʜᴛ ʜᴀᴠᴇ ᴛᴏ ɪɴᴛ ꜰɪʀꜱᴛ!  ɪ ᴀʟʟᴏᴡ ᴄ + ʜ, ʏᴏᴜ ᴄᴀɴ ᴄᴏᴠᴇʀ ᴍᴇ ᴀ ʙɪᴛ ʙᴜᴛ ᴍᴀᴋᴇ ꜱᴜʀᴇ ɪᴍ ꜱᴛɪʟʟ ᴠɪꜱɪʙʟᴇ!
 
-Dont inc if-
+ᴅᴏɴᴛ ɪɴᴄ ɪꜰ-
 
-You are uncomfortable with minors
+ʏᴏᴜ ᴀʀᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ ᴍɪɴᴏʀꜱ
 
-You are a predator or PDF file 
+ʏᴏᴜ ᴀʀᴇ ᴀ ᴘʀᴇᴅᴀᴛᴏʀ ᴏʀ ᴀ ᴘ3ᴅ0 
 
-Hate perfectly fine ships because they are 'problematic'
+ʜᴀᴛᴇ ᴘᴇʀꜰᴇᴄᴛʟʏ ꜰɪɴᴇ ꜱʜɪᴘꜱ ʙᴇᴄᴀᴜꜱᴇ ᴛʜᴇʏ ᴀʀᴇ "ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ"
 
-You are going to start drama
+ʏᴏᴜ ᴀʀᴇ ɢᴏɪɴɢ ᴛᴏ ꜱᴛᴀʀᴛ ᴅʀᴀᴍᴀ
 
-Racist, sexist, homophobic or transphobic
+ʀᴀᴄɪꜱᴛ, ꜱᴇxɪꜱᴛ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ ᴏʀ ᴛʀᴀɴꜱᴘʜᴏʙɪᴄ
 
-Hate on furries, therians, Otherkin, etc.
+ʜᴀᴛᴇ ᴏɴ ꜰᴜʀʀɪᴇꜱ, ᴛʜᴇʀɪᴀɴꜱ, ᴏᴛʜᴇʀᴋɪɴ, ᴇᴛᴄ.
