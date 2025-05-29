@@ -10,17 +10,17 @@ Im normally in a OP cosplay so look out for that. (and it will either have my di
 
 Fandoms i have cosplays for-
 
-One piece
+ᴏɴᴇ ᴘɪᴇᴄᴇ
 
-MHA
+ᴍʜᴀ
 
-ENA
+ᴇɴᴀ
 
-FNAF
+ᴇɴᴀ
 
-GI
+ɢᴇɴꜱʜɪɴ ɪᴍᴘᴀᴄᴛ
 
-SMG4 (Wip)
+ꜱᴍɢ4 (ᴡɪᴘ)
 
 If you want to inc just know im a little shy so you might have to int first! 
 I allow C + H, you can cover me a bit but make sure im still visible!
