@@ -16,9 +16,9 @@ Im normally in a OP cosplay so look out for that. (and it will either have my di
 
 ᴇɴᴀ
 
-ᴇɴᴀ
-
 ɢᴇɴꜱʜɪɴ ɪᴍᴘᴀᴄᴛ
+
+ᴄʀᴋ
 
 ꜱᴍɢ4 (ᴡɪᴘ)
 
@@ -31,6 +31,8 @@ Im normally in a OP cosplay so look out for that. (and it will either have my di
 ʏᴏᴜ ᴀʀᴇ ᴀ ᴘʀᴇᴅᴀᴛᴏʀ ᴏʀ ᴀ ᴘ3ᴅ0 
 
 ʜᴀᴛᴇ ᴘᴇʀꜰᴇᴄᴛʟʏ ꜰɪɴᴇ ꜱʜɪᴘꜱ ʙᴇᴄᴀᴜꜱᴇ ᴛʜᴇʏ ᴀʀᴇ "ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ"
+
+ʏᴏᴜ ᴀʀᴇ ᴀ ᴘʀᴏsʜɪᴘᴘᴇʀ
 
 ʏᴏᴜ ᴀʀᴇ ɢᴏɪɴɢ ᴛᴏ ꜱᴛᴀʀᴛ ᴅʀᴀᴍᴀ
 
