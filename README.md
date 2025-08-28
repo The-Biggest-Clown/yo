@@ -23,6 +23,8 @@ Im normally in a OP cosplay so look out for that. (and it will either have my di
 
 ꜱᴍɢ4 (ᴡɪᴘ)
 
+<img width="1536" height="864" alt="image" src="https://github.com/user-attachments/assets/b4f8aa3f-f3b1-4315-82df-bdb12500b74d" />
+
 ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ɪɴᴄ ᴊᴜꜱᴛ ᴋɴᴏᴡ ɪᴍ ᴀ ʟɪᴛᴛʟᴇ ꜱʜʏ ꜱᴏ ʏᴏᴜ ᴍɪɢʜᴛ ʜᴀᴠᴇ ᴛᴏ ɪɴᴛ ꜰɪʀꜱᴛ!  ɪ ᴀʟʟᴏᴡ ᴄ + ʜ, ʏᴏᴜ ᴄᴀɴ ᴄᴏᴠᴇʀ ᴍᴇ ᴀ ʙɪᴛ ʙᴜᴛ ᴍᴀᴋᴇ ꜱᴜʀᴇ ɪᴍ ꜱᴛɪʟʟ ᴠɪꜱɪʙʟᴇ!
 
 ᴅᴏɴᴛ ɪɴᴄ ɪꜰ-
