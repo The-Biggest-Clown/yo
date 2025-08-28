@@ -1,5 +1,6 @@
 -ˏˋ⋆ ᴡ ᴇ ʟ ᴄ ᴏ ᴍ ᴇ ⋆ˊˎ-
 
+<img width="433" height="577" alt="flat_750x_075_f-pad_750x1000_f8f8f8-removebg-preview" src="https://github.com/user-attachments/assets/3117a7eb-e9a2-4cf6-b08d-0076230b38f9" />
 
 
 ‎‧₊˚✧ʜᴇʟʟᴏ!✧˚₊‧
