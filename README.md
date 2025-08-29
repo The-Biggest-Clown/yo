@@ -19,7 +19,7 @@
 
 ᴄʀᴋ
 
-ꜱᴍɢ4 (ᴡɪᴘ)
+ꜱᴍɢ4
 
 <img width="1536" height="864" alt="image" src="https://github.com/user-attachments/assets/b4f8aa3f-f3b1-4315-82df-bdb12500b74d" />
 
